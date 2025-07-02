@@ -1,0 +1,1 @@
+oğlun başardı ANNNE
